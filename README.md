@@ -1,0 +1,1 @@
+# Geometrik-sekillerin-Alan-ve-Cevre-hesab-
